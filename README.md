@@ -1,5 +1,5 @@
 # 💫 About Me:
-Como desenvolvedora, estou sempre buscando desafios para ampliar meus conhecimentos e habilidades. Com experiência sólida em projetos freelancer e colaborativos, estou comprometida com a excelência em todas as minhas entregas. Atualmente, estou cursando Análise e Desenvolvimento de Sistemas, além de participar de uma formação FullStack chamada
+Como desenvolvedora, estou sempre buscando desafios para ampliar meus conhecimentos e habilidades. Com experiência sólida em projetos freelancer e colaborativos, estou comprometida com a excelência em todas as minhas entregas. Formada em Análise e Desenvolvimento de Sistemas, além de participar de uma formação FullStack chamada
 "DevClub " ,que me permite aprimorar minhas habilidades. Estou entusiasmada para aplicar meu conhecimento em novos projetos e alcançar resultados excepcionais.
 
 ## 🌐 Socials:
